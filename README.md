@@ -1,0 +1,1 @@
+Manarium staking
